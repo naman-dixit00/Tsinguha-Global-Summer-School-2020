@@ -9,3 +9,5 @@ By : Prof. Harry Shum
 •  Participated in Community Discussions and Share our Q & A and Insights.
 
 ---
+
+![Banner](https://github.com/naman-dixit00/Tsinguha-Global-Summer-School-2020/blob/main/1765347800266~2.jpg)
